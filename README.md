@@ -1,5 +1,5 @@
-Dashboard Link :
-https://www.novypro.com/project/telangana-tourism-3
+[Link to Workbook](https://www.novypro.com/project/telangana-tourism-3)
+
 *************************************************************************************************************************************************************************************************************************************
 
 # Analysis_of_Telangana_Tourism
