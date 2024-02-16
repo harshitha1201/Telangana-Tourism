@@ -20,9 +20,3 @@ To know about Telangana Districts : https://www.telangana.gov.in/about/districts
 Telangana Formation Day Celebration 2016 : https://www.ragalahari.com/localevents/91579/telangana-state-formation-day-celebrations-2016-hyderabad-photos.aspx
 
 Telangana Population Districtwise : https://www.indiacensus.net/states/telangana
-
-List of UNESCO Heritage sites in India : https://whc.unesco.org/en/statesparties/in
-
-Taxation Policies of Dubai : https://www.financialexpress.com/money/new-tax-rules-uae-2023-what-indians-going-to-dubai-should-know-7-points/2979991//
-
-Statistics of FTA in Mamallapuram : https://www.rediff.com/getahead/report/tamil-town-beats-taj-as-top-tourist-site/20221024.htm
